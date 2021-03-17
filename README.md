@@ -1,1 +1,1 @@
-# More about GitHub
+# More about GitHub & friends!
